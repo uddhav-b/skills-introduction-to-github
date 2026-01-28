@@ -1,1 +1,1 @@
-the journey of a thousan miles begin with a single step 
+Welcome to my GitHub profile!
